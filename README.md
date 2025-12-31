@@ -3,5 +3,5 @@
 # **Miwi enthusiast**
 I go by Will! 
 
-19yrs old, cronically online Byler addict, *Audhd, DID system!*
+19yrs old, cronically online Byler addict, *Audhd, DID system!* 
 
